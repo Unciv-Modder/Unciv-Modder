@@ -1,9 +1,6 @@
-**Bruh Momento**
+I'm Unciv-Modder/nurdPi/Micro047. I make garbage everything! This garbage could be: a video, a meme, a gd level, or a website.
+If you feel I've said something incorrect, feel free to let me know!
+<br>
+# Contact
 ---
-when the unciv mod is sus <br>
-lmao
-<br>
-my mods don't ever work lmao
-<br>
-
-making web shit
+Discord Tag: nurdPI#2056
